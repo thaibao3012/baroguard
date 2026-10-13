@@ -74,14 +74,14 @@ deleting it.
 
 ### 9. Contact
 
-[CONTACT EMAIL]
+ngothaibao3012@gmail.com
 
 ---
 
 ## Tiếng Việt
 
 **Ngày có hiệu lực:** 2026-10-13
-**Liên hệ:** [CONTACT EMAIL]
+**Liên hệ:** ngothaibao3012@gmail.com
 
 Khi tải xuống hoặc sử dụng BaroGuard ("ứng dụng"), bạn đồng ý với các điều khoản này. Nếu bạn không đồng
 ý, vui lòng không sử dụng ứng dụng.
