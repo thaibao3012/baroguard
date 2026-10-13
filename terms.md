@@ -152,4 +152,4 @@ nào bằng cách xóa ứng dụng.
 
 ### 9. Liên hệ
 
-[CONTACT EMAIL]
+ngothaibao3012@gmail.com
